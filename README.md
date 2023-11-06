@@ -8,6 +8,6 @@ Meu nome é Vanessa Amaral
 
   ### Você pode entrar em contato comigo 📫
 
-  vanessa.amaraldos.santos@ecola.pr.gov.br
+  vanessa.amaraldos.santos@escola.pr.gov.br
 
  ![](https://media.tenor.com/3qFgYyQVCzIAAAAd/lenakos-dog.gif )
